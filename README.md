@@ -1,1 +1,3 @@
-# spotishka
+# Spotishka
+
+Aprel Team ❤️
